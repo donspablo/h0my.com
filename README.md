@@ -2,4 +2,4 @@
 
 "homy.com - a friend "
 
-T®ᶜᵒᵐ don Federation👁 London https://ţ.com @donpablonow c@ţ.com
+👁 XIΞLΞVAN SOLUTIONS / https://xı.com
